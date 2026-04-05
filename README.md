@@ -15,7 +15,7 @@ What truly sets OneclickTV apart is its excellent customer support. Their team i
 
 Features:
 
-Over +25,000 live TV channels.
+Over +50,000 live TV channels.
 Supports Full 4K, HD, and SD streaming.
 Regular updates and maintenance.
 Catch Up / EPG For US, European Channels
@@ -26,7 +26,7 @@ A free NordVPN account is included with longer subscriptions.
 Compatible with all major devices, including Android, iOS, Smart TVs, and streaming devices like Firestick.
 Pricing:
 
-Starts from $12 per month, with discounts on longer subscriptions.
+Starts from $20 per 2 months, with discounts on longer subscriptions.
 
 2. [4K IPTV](https://4kiptv.net)
 Best for: Sports enthusiasts and family viewing
@@ -35,15 +35,15 @@ Overview: 4K IPTV is particularly popular in the USA and UK and Europe for its s
 
 Features:
 
-Over 25,000 live TV channels.
+Over 45,000 live TV channels.
 Dedicated sports channels with 4K quality.
 Supports Electronic Program Guide (EPG) for easy navigation.
 Multi-device compatibility.
 Pricing:
 
-Starts at $12 per month, with various package options available.
+Starts at $19 per 2 months, with various package options available.
 
-3. XTREME HD IPTV
+3. XTREME HD IPTV ( Get Shutdown)
 
 Best for: Budget-friendly options
 
