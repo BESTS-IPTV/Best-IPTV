@@ -9,7 +9,7 @@ The world of television has rapidly evolved over the last decade, with Internet 
 1. [OneclickTV](https://oneclicktv.net)
 Best for: Comprehensive content and reliability
 
-Overview: OneclickTV has grown to become one of the top IPTV providers across the USA, Canada, and Europe. With over 25,000 live TV channels and an extensive on-demand library of movies and TV shows, OneclickTV is recognized for its high-definition streaming quality and stability.
+Overview: OneclickTV has grown to become one of the top IPTV providers across the USA, Canada, and Europe. With over 50,000 live TV channels and an extensive on-demand library of movies and TV shows, OneclickTV is recognized for its high-definition streaming quality and stability.
 
 What truly sets OneclickTV apart is its excellent customer support. Their team is readily available through website chat, WhatsApp, and Telegram, responding to messages within seconds.
 
